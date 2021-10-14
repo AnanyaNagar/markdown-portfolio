@@ -1,1 +1,1 @@
-# Hey:wave: I am Ananya Nagar
+# Hey! I am Ananya Nagar
